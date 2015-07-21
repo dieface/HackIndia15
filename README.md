@@ -2,4 +2,4 @@
 Jupiter
 
 
-Video uploaded to be uploaded soon!
+Video to be uploaded soon!
