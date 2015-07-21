@@ -2,4 +2,4 @@
 Jupiter
 
 
-Video to be uploaded soon!
+Video: https://www.youtube.com/watch?v=4t4NBdXnCPc
